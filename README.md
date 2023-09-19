@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 📫 How to reach me: instagram.com/sintadhr
 😄 Pronouns: She/her
 ⚡ Fun fact: ...
--->
+
